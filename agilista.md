@@ -26,3 +26,4 @@ Como a ideia é que o time tech cresça ainda mais, estamos buscando uma pessoa 
 - Full time  
 - 100% Home office
 - 30 dias de férias
+- Dayoff
