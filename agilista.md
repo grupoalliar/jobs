@@ -22,5 +22,7 @@ Como a ideia é que o time tech cresça ainda mais, estamos buscando uma pessoa 
 - Treinar e dar mentoria aos times e pessoas na execução de métodos ágeis;
 
 ## Contratação
-PJ - Full time - 100% Home office
-30 dias de férias
+- PJ 
+- Full time  
+- 100% Home office
+- 30 dias de férias
